@@ -5,4 +5,4 @@
 
 Hello my name is **Moch Revi Fikri w**.<br>
 
-If you're interested, let's connect with my [Linkedin]([https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/revifikri/))
+If you're interested, let's connect with my [Linkedin](https://www.linkedin.com/in/revifikri/)
